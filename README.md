@@ -2,7 +2,7 @@
 # StoraTraining201511
 jeho noha
 
-�lutouck� kun pr�erne �pel d�belsk� �dy
+žlutoučký kůň příšerně úpěl ďábelské ódy
 
 # StoraTraining20151123
 moje noha
